@@ -15,7 +15,7 @@
 
 **According to data casual riders using bikes mostly on weekends for long rides. If we can offer them weekends membership cards with discount on ride length,**
 **it can help the company to make profit and convert the casual riders to members.<br> **
-** Promote discount coupons for weekends passes and add banners or do advertisement at those places where casual riders are moslty travelling on bike.**
+Promote discount coupons for weekends passes and add banners or do advertisement at those places where casual riders are moslty travelling on bike.**
 
 
 
